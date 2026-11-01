@@ -1,2 +1,2 @@
 - Polygyny apologetics: [here](https://photos.app.goo.gl/ScGVMGYmeTvmhJ336).
-- Polygyny motivation: [here](https://photos.icloud.com/shared/album/0c1ZbvsjVRUtT2LytwG7txEjg).
+- Polygyny motivation: [here](https://photos.app.goo.gl/ScGVMGYmeTvmhJ336).
